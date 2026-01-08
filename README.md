@@ -1,4 +1,4 @@
-# Nicholas-Santoso
+# Nicholas Santoso
 
 ## Education 
 
